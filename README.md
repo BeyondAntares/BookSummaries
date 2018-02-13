@@ -4,7 +4,7 @@
 
 Here I'll be including book summaries and key takeaways from books I've committed to read and finish in 2018. 
 
-These books are organised by subject area and once finished a summary will go up. To access these, please click the relevant Markdown files (*.md) above.
+These books are organised by subject area and once finished, a summary will go up. To access these, please click the relevant Markdown files (*.md) above.
 
 ## Assertiveness Training
 
