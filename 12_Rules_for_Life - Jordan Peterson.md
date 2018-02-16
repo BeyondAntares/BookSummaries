@@ -21,8 +21,37 @@ Be confident and be the best version of yourself, physically, mentally, emptiona
 
 
 **Rule 2: treat yourself like someone you are responsible for helping**
+* people are unsettled by their vulnerabilities eternally fear to tell the truth to mediate between chaos and order and manifest their destiny. 
+
+* Carl Jung - treat others as you would like to be treated is not about being nice. It is not virtuous to be victimized by a bully even if its yourself. Morally obliged to bargain on my behalf as they are to themselves. Or else we accept being a slave. Embracing and loving the sinner who is ourselves. 
+
+* Your mistreatment of yourself hurts others more than yourself. Aftermath of suicide hurts others for many years. 
+
+* most individuals are dealing with multiple problems, yet people prevail and keep up an image that everything is fine. 
+
+* wounded people are the best at holding it together during tough life struggles. People are so tortured for being.  Ongoing miracle of fortitude and perseverence.
+
+* He points out a universal tendency to not treat ourselves the way we treat others we are responsible for. 
+
+* we deserve some resepct, you deserve some respect, you are important to other people as much as yourself. You are morally obliged to be there for others and yourself.  
+
+* happy != good. Giving kids candy to be happy doesnt make you a good parent, but against their will to look after their own well being, such as wearing snow coats or brushing their teeth. Your responsibility is to raise them to be morally contributing members of society because you owe it to yourself and others around us. 
+
+* heaven does not come easy
+* dont underestimate the power of vision and direction, able to tranform unconquearble obstacles into traversable pathways and expanding opportunties. 
+* strengthen the individual and choose your destination, articulating your behaviour
+* Nietze : he who's life has a why, can bare any how.
+* Begin by treating yourself as someone you are responsible for helping. 
 
 **Rule 3: Make friends with people who want the best for you.**
+* Down is easier than up
+* Why try to save others? Is it easier to look virtuous against them? 
+* Are you enabling contempt? Or associating with people that are bad for you indirectly brings you down. 
+* Before help someone, ask yourself what they did to go down that path. 
+* Failure is easier to understand. Fear hatred deception promiscuity doesnt require exolanation. Vice is easy and so is failure. 
+* Maybe misery is your response to watching everyone around you moving onwards and upwards. 
+* Its impossible to help someone who didnt want to improve. It only works when someone is forced to seek it. 
+
 
 **Rule 4: Compare yourself to who you were yesterday not to who someone else is today.**
 
