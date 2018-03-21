@@ -6,14 +6,6 @@ Here I'll be including book summaries and key takeaways from books I've committe
 
 These books are organised by subject area and once finished, a summary will go up. To access these, please click the relevant Markdown files (*.md) above.
 
-## Assertiveness Training
-
-1. 12 Rules for Life and an Antidote for Chaos - Jordan Peterson
-
-2. The Asshole Survival Guide - Robert I Sutton
-
-3. The Subtle art of not giving a Fuck - Mark Manson
-
 ## Business Best Practices / Strategy / Startups
 
 1. Good to Great - Jim Collins
@@ -93,3 +85,12 @@ These books are organised by subject area and once finished, a summary will go u
 3. Winning in emerging markets
 
 4. Manufacturing Consent - Noam Chomsky
+
+## Assertiveness Training
+
+1. 12 Rules for Life and an Antidote for Chaos - Jordan Peterson
+
+2. The Asshole Survival Guide - Robert I Sutton
+
+3. The Subtle art of not giving a Fuck - Mark Manson
+
